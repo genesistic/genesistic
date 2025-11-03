@@ -1,7 +1,7 @@
-<p align="center"><img width="736" height="309" alt="2025_09_28_08m_Kleki" src="https://files.catbox.moe/uyrvq9.png" /></p>
+<p align="center"><img width="736" height="309" alt="yo" src="https://files.catbox.moe/v1yw6v.png" /></p>
 
 
-<p align="center">|⠀'⠀scene.⠀19⠀⠀:⠀⠀temperature⠀of⠀the⠀heart⠀.⠀'
+<p align="center">|⠀'⠀can you read me⠀?⠀i have a message⠀...⠀a message from the stars⠀!⠀'
 
 <p align="center">𓈒⠀︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵ ⌣ ︵⠀𓈒
 
